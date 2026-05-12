@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with custom new token sniper bot | priority-gas-auctions + liquidity-sniping, the #1 new token sniper bot. Includes priority-gas-auctions and
 
 
 
